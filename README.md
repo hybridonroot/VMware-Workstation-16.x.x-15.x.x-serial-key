@@ -1,6 +1,6 @@
 # VMware-Workstation-16.x.x-15.x.x-serial-key
 Education purpose use for students who want to use VMware Workstation 15.x.x serial key and can't pay for. Good Luck with your studies
-# Key List To Use
+# Key List To Use VMware-Workstation-16.x.x-15.x.x-serial-key
 * FU512-2DG1H-M85QZ-U7Z5T-PY8ZD
 * CU3MA-2LG1N-48EGQ-9GNGZ-QG0UD
 * GV7N2-DQZ00-4897Y-27ZNX-NV0TD
@@ -13,3 +13,11 @@ Education purpose use for students who want to use VMware Workstation 15.x.x ser
 * FY780-64E90-0845Z-1DWQ9-XPRC0
 * UF312-07W82-H89XZ-7FPGE-XUH80
 * AA3DH-0PYD1-0803P-X4Z7V-PGHR4
+
+# Key List To Use VMware Workstation 16 pro serial key
+
+* ZF3R0-FHED2-M80TY-8QYGC-NPKYF
+* YF390-0HF8P-M81RQ-2DXQE-M2UT6
+* ZF71R-DMX85-08DQY-8YMNC-PPHV8
+* AZ3E8-DCD8J-0842Z-N6NZE-XPKYF
+* FC11K-00DE0-0800Z-04Z5E-MC8T6
